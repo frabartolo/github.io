@@ -1,6 +1,6 @@
 # Mein Lieblingscharakter ist "Fra" Bartolo
 
-![Fra Bartolo (https://images.lovelybooks.de/img/260x/cover.allsize.lovelybooks.de/die_kulinarischen_abenteuer_des_fra_bartolo__m__audio_cd-9783775004398_xxl.jpg)
+![Fra Bartolo] (https://images.lovelybooks.de/img/260x/cover.allsize.lovelybooks.de/die_kulinarischen_abenteuer_des_fra_bartolo__m__audio_cd-9783775004398_xxl.jpg)
 
 In meiner Jugend kamen unregelmäßig im SWF3 Kapitel aus dem Buch "Die kulinarischen Abenteuer des Fra Bartolo"
 In jedem Kapitel erlebt der Klostergärtner Fra Bartolo ein kleines Abenteuer, das in einem wunderbaren Rezept aus der italienischen Küche endet.
