@@ -9,3 +9,5 @@ Aus der Beschreibung bei [Amazon](https://www.amazon.de/dp/3775006966?tag=duc03-
 * Neun Krüglein besten Olivenöls, die zu seinem Reisegepäck gehören, haben daran beträchtlichen Anteil. Zum Nachkochen sind die Rezepte, die in den Geschichten auftauchen, der besseren Übersicht wegen, am Ende des Buches in einem Sonderteil zusammengefasst. 
 
 Mit der Figur des Fra Bartolo und seinen wunderbaren Abenteuern hat Leonhard Reinirkens ein Stück schweijkschen Charakter ins 18. Jahrhundert und die Welt der Toskana versetzt. Liebevoll illustriert und ergänzt werden die Geschichten von Tony Munzlingers Zeichnungen und Initialen."
+
+> "Dem Himmel sei Dank"
