@@ -6,8 +6,8 @@ Aus der Beschreibung bei [Amazon](https://www.amazon.de/dp/3775006966?tag=duc03-
 ## Auszug aus Amazon.de
 * Genüssliche Geschichten vom sinnenfrohen Klostergärtner Die kulinarischen Abenteuer des Klostergärtners Fra Bartolo, der, leiblichen Genüssen und weiblichen Reizen nicht abgeneigt, durch die Toskana und angrenzende Gebiete wandert und dabei allerlei köstliche, deftige und skurrile Abenteuer besteht. 
 * Sie enden jedes Mal – dem Himmel sei Dank – in italienischen Tafelfreuden, die nicht nur dem braven Bartolo, sondern auch dem Leser das Wasser im Munde zusammenlaufen lassen. 
-* Neun Krüglein besten Olivenöls, die zu seinem Reisegepäck gehören, haben daran beträchtlichen Anteil. Zum Nachkochen sind die Rezepte, die in den Geschichten auftauchen, der besseren Übersicht wegen, am Ende des Buches in einem Sonderteil zusammengefasst. 
+* Neun Krüglein besten Olivenöls, die zu seinem Reisegepäck gehören, haben daran beträchtlichen Anteil. Zum Nachkochen sind die Rezepte, die in den Geschichten auftauchen, der besseren Übersicht wegen, am Ende des Buches in einem Sonderteil zusammengefasst.
 
-Mit der Figur des Fra Bartolo und seinen wunderbaren Abenteuern hat Leonhard Reinirkens ein Stück schweijkschen Charakter ins 18. Jahrhundert und die Welt der Toskana versetzt. Liebevoll illustriert und ergänzt werden die Geschichten von Tony Munzlingers Zeichnungen und Initialen."
+Mit der Figur des Fra Bartolo und seinen wunderbaren Abenteuern hat Leonhard Reinirkens ein Stück schweijkschen Charakter ins 18. Jahrhundert und die Welt der Toskana versetzt. Liebevoll illustriert und ergänzt werden die Geschichten von Tony Munzlingers Zeichnungen und Initialen.
 
-> "Dem Himmel sei Dank"
+> Dem Himmel sei Dank
