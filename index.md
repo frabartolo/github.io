@@ -14,3 +14,6 @@ Aus der Beschreibung bei [Amazon](https://www.amazon.de/dp/3775006966?tag=duc03-
 Mit der Figur des Fra Bartolo und seinen wunderbaren Abenteuern hat Leonhard Reinirkens ein Stück schweijkschen Charakter ins 18. Jahrhundert und die Welt der Toskana versetzt. Liebevoll illustriert und ergänzt werden die Geschichten von Tony Munzlingers Zeichnungen und Initialen.
 
 > Dem Himmel sei Dank!
+
+<img src="http://www.braulotse.de/uploads/pics/Moench.gif"/>
+
